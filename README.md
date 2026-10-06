@@ -8,4 +8,4 @@ Challenges
  - [ ] Find changes made to the plan of this talk
 
  - [ ] Create your own github account and fork this repo to push up your progress
- - [ ] Find the Capture The Flag (CTF) token in the branches (try not doing a manual search)
+ - [ ] Find the Capture The Flag (CTF) token in the branches (try not doing a manual search) - Use the web, not AI

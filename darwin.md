@@ -1,25 +1,14 @@
-# Darwinovky
+Darwin day 2
 
-Včera večer sme hrali šarády. Poradie tu:REDACTED  
-Poprosíme členov družinky nápady, aby prišli sem a za odmenu nám môžu vyšarádiť jedno slovo, pričom v tabuľke je kto šarádi čím (náboj)
+Včera večer po vyhodnotení sme išli spinkať, lenže v noci nás zobudili sirény. Keďže sme v bunkri nevedeli spať, rozhodli sme sa zahrať si katan. Radi by sme ocenili tých, ktorí stihli v noci vyhrať a špeciálne dvoch ľudí, ktorý Katan dokonca vyhrali. Prosím, prídte k nám. Keďže táto hra bola takpovediac pozliepaná na kolene, tak my by sme vám chceli dať lepidlo, aby ste si tiež mohli niečo zlepiť. Okrem toho sme mali jednu skupinku, ktorá vydržala fakt dlho zavretá v sprchách, až si museli vypýtať plynovú masku, aby prežili. Radi by sme vám odovzdali deodorant, aby ste nabudúce tú plynovú masku už nepotrebovalil. 
 
-| Rudolf Tichý |  |  |  |  |  | Hlavou |
-| :---- | ----- | ----- | ----- | ----- | ----- | :---- |
-| Peter Brilla |  |  |  |  |  | Palcami na nohach |
-|  Zuzana Petho |  |  |  |  |  | Nohami |
-| Jakub Tvarožek |  |  |  |  |  | prstami |
+Ráno sme hrali športy, ktoré ale by sme vyhodnotili až neskôr, keď dohráme všetky športy. Napriek tomu by sme radi ocenili jedného vedúceho, ktorého šport fungoval tak dobre, až žiadna družinka nedostala ani bod. Za odmenu si tento vedúci môže vymyslieť nový šport. 
 
-Večer sme mali voľno a dnes ráno sme mali ekonomku. Poradie tu:
+Po obede sme programovali robotíkov v hraní kameň paper, nožnice. Poradie družiniek bolo následovné: Dinosaury, Napady, Chudenti, Nakup, Slay barbie, Pst, (rozbili). Poďte si prosím sem po odmenu.
+Krátka vsuvka, radi by sme sa poďakovali našej tlačiarni, ktorá opäť odmietla tlačiť.
 
-Dinosaurus \+ pst,   
-Slaybarbie  
-Napad \+ nakup,  
-Chudenti  
-Okrem toho by sme mimoriadne chceli oceniť Viki, ktorá vlastne cca nikoho netrafila a za odmenu si na 24 hodín môže požičať šantiloptičku, aby trénovala hádzanie, aby jej to nabudúce išlo lepšie. Na druhom športe sme hrali frisbee a Viki a Aleš mali epic safe, takže by sme im chceli odovzdať epic safe.  
-Viki dostane santilopticku na 24 h  
-Viki Ales epic save  
-Za ďalšiu hru by sme sa chceli poďakovať Gemini 3.8 flash. Prosíme potlesk. Poradie bolo následujúce: napady, slay barbie, pst,chudenti, nakup, dinosaury. aby ste si mohli urobiť párty, tu máme pre vás balóniky.  
-Po dance párty sme schovávali erár po chate. Poradie: 4, Felix \= Barbie, 3, Trust me bro. Okrem toho jedna osoba schovala pomerne mimoriadnu vec a to svoj batoh, takže Dobby, za odmenu môžeš schovať svoj batoh ešte raz.  
-Poslednú večernú hru sme hrali 5 sekúnd. Poradie na hre bolo následovné: máme pre vás cukríky. Mimoriadne by sme chceli oceniť dve salatove hlavy, Tima a Sama ktoré na dinosaurovi zahrali viac ako 10k bodov. Keďže vám to tak mimoriadne ide a my vám chceme poskytnúť šancu sa ešte zlepšiť, zablokujeme vám internet. Veľa šťastia.  
-Na záver máme ešte nejaké straty a nálezy. Niektoré z nich sú už staré pár týždňov, napríklad istá osoba, ktorá si ešte na noci vedy zabudla svoju mikinu a fľašu. Na odčinenie si odslúži buduúci rok aspoň hodinu v stánku propagovaním Prasku.  
-EPIC KONIEC  
+Potom sme mali behačku. Mimoriadne by sme chceli oceniť pár bežcov, ktorí zabehli dve celé kolečká a k tomu ešte kúsok a to Samo, Vinco, Max a Matej. Prosím poďte si sem po vaše ocenenie. Máme pre vás balóniky, aby ste mohli aj naďalej trénovať pravidelné a hlboké dýchanie. Okrem toho máme jedno ocenenie pre jedného silno motivovaného účastníka, ktorý sa dokázal vynájsť aj po strate svojho papiera a nechal si zapísať svoje skóre na polystyrén. Aby nabudúce už nemal tento problém, odovzdávame mu papier. 
+
+Na záver by sme si sem radi pozvali ešte jedného z vás, ktorý je zase o krok bližšie do hrobu. Teraz mu všetci mohli poblahoželať, Všetko najlepšieee. Volanie Kuchovi
+
+Epický koniec - A zrazu - PRASK
