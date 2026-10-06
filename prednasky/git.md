@@ -6,6 +6,6 @@
  - Basic historia (linux kernel, merge speeds)
  - Pojmy (blob, tree, commit, tag, branch, commit, remote, staged, merge, PR)
  - Git vs Github (GitLab, Codeberg)
- - Ideme nainstalovat git!!
+ - Ideme rozdat agentov
  - Basic use cases ako sposob ako si vsetko nepokazit
  - Advanced use cases ako spolupracovat s timom
