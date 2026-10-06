@@ -9,6 +9,6 @@ Krátka vsuvka, radi by sme sa poďakovali našej tlačiarni, ktorá opäť odmi
 
 Potom sme mali behačku. Mimoriadne by sme chceli oceniť pár bežcov, ktorí zabehli dve celé kolečká a k tomu ešte kúsok a to Samo, Vinco, Max a Matej. Prosím poďte si sem po vaše ocenenie. Máme pre vás balóniky, aby ste mohli aj naďalej trénovať pravidelné a hlboké dýchanie. Okrem toho máme jedno ocenenie pre jedného silno motivovaného účastníka, ktorý sa dokázal vynájsť aj po strate svojho papiera a nechal si zapísať svoje skóre na polystyrén. Aby nabudúce už nemal tento problém, odovzdávame mu papier. 
 
-Na záver by sme si sem radi pozvali ešte jedného z vás, ktorý je zase o krok bližšie do hrobu. Teraz mu všetci mohli poblahoželať, Všetko najlepšieee. Volanie Kuchovi
+Na záver by sme si sem radi pozvali ešte jedného z vás, ktorý je zase o krok bližšie do hrobu. Teraz mu všetci mohli poblahoželať, Všetko najlepšieee. Volanie Kuchovi ktory nosi ovocie v sklade
 
-Epický koniec - A zrazu - PRASK
+Epický koniec - A zrazu - PRASK (pustime im bangarang a ujdeme!!!)
